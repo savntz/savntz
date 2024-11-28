@@ -1,7 +1,8 @@
-Hi, I'm vikz and I'm sometimes active on Pony town.
+Hi, I'm vikz or Viktor and I'm sometimes active on Pony town.
 
 
-Making rentry . co Later so to get to know abt me
+Making rentry . co Later so to get to know abt me more.  . 
 
 
-I'mI'm half english speaker and Russian apparently. 
+I'm half english speaker and Russian apparently. 
+( I may get bad grammar also ) 
